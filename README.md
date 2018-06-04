@@ -33,33 +33,49 @@ Waves Initial: 03 June 2018
 Dalga Token Official Websites:
 
 https://hiperteknoloji.org (Official website)
+
 https://hiperteknoloji.org/2018/06/04/dalga-token/
+
 http://mehmetkececi.com
  
 
 Dalga Token Official Social Links/Websites:
 
 https://twitter.com/dalgatoken (official, live)
+
 https://plus.google.com/u/0/111283036460691790248
+
 https://plus.google.com/u/0/communities/101920633536830827780
+
 https://github.com/DalgaToken
+
 https://github.com/Dalga-Token
+
 https://github.com/Dalga-Token/DLGT
+
 https://medium.com/@dalgatoken
+
 https://medium.com/@dalgatoken/dalga-token-dlgt-aa61b1340333
+
 https://t.me/DalgaToken
  
 
 Other Links: Diğer Linkler
 
 https://medium.com/@dalgatoken
+
 https://paper.li/enfonomi/1523457355#/
+
 https://paper.li/enfonomi/1523485208#/
+
 https://paper.li/mkececi/1487423753#/
+
 https://paper.li/mkecheci/1506593771#/
+
 Whitepaper:
 
 https://hiperteknoloji.org/ht/dalgatoken.pdf (official)
+
 Dalga Token
 
   #DalgaToken #DLGT #Cryptocurrency #BlockChain #Kriptopara #Blokzinciri #Wavesplatform #Coin #Token
