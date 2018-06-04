@@ -1,7 +1,9 @@
 # DLGT
 
 Dalga Token (DLGT)
+
 03.06.2018
+
 June/Haziran
 
 Dalga Token Description
